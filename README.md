@@ -1,0 +1,1 @@
+# Latihan-Sumatif-PendidikanPancasila-Kelas-7-Semester-2
